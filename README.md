@@ -6,4 +6,4 @@ Once upon a time there was a magical land named Scottlogica.
 
 Nothing seemed out of place except there were washing machines EVERYWHERE!
 
-And they were full of hash browns.
+And they were full of sausage rolls.
